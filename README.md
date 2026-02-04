@@ -1,5 +1,3 @@
-# Yin QIAO MAI - Eight Extraordinary Vessels
-
 # YIN QIAO MAI — CLINICAL QUICK REFERENCE
 
 ## TRAJECTORY

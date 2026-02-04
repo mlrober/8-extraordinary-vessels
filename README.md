@@ -73,6 +73,18 @@
 
 ## CORE FUNCTIONS
 
+## ANATOMICAL AREAS OF INFLUENCE (MERGED)
+
+* Inner aspect of the **legs**
+* **Motor function** of the lower limbs
+* **Genitals**
+* **Abdomen**
+* **Eyes**
+* **Brain**
+* **Shen**
+* **Bladder**
+---
+
 ### Structural & Physical
 
 * Holds:
@@ -90,6 +102,24 @@
 
   * Foot arch integrity
   * Medial leg stability
+
+---
+
+## FUNCTIONS & ACTIONS
+
+* Regulates **motion of the lower limbs**
+* Controls **Yin balance** on medial and lateral aspects of the body
+* Transports **Yin substances** from the lower body to the upper body
+* Absorbs **excess Yin**
+* Influences all Yin substances:
+
+  * Yin
+  * Blood
+  * Fluids
+  * Sweat
+  * Tears
+  * Nodules
+* Removes **qi and blood stagnation** in the genital region
 
 ---
 
@@ -244,6 +274,50 @@
 ---
 
 ## CLINICAL CONDITIONS TREATED
+
+### Musculoskeletal & Neurological
+
+* Tightness and spasm of the **medial lower leg**
+* Flaccidity or atrophy of the **lateral leg**
+* Spasm of the **lower limbs**
+* **Inversion of the foot**
+* Motor impairment of the legs
+
+---
+
+### Pain & Obstruction
+
+* Lumbar and hip pain referring to the **pubic region**
+* Hip pain
+* Genital pain
+* Lower abdominal pain
+* Hernia
+
+---
+
+### Reproductive & Gynecological
+
+* Habitual miscarriage
+* Infertility
+* Difficult labor
+* Vaginal discharge
+* Uterine bleeding
+
+---
+
+### Neurological & Systemic
+
+* Epilepsy
+* Hypersomnia
+* Lethargy
+
+---
+
+### Sensory
+
+* Diseases of the **eyes**
+
+---
 
 * Eye diseases
 * Somnolence

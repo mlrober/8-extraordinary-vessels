@@ -1,3 +1,308 @@
+# YIN WEI MAI
+
+## CHANNEL PATHWAY
+
+**Origin:** KI-9 (Zhu Bin), medial aspect of leg
+
+**Trajectory:**
+- Ascends medial leg and thigh → lower abdomen
+- Communicates with Spleen: SP-13 (Fu She) → SP-15 (Da Heng) → SP-16 (Fu Ai)
+- Crosses ribs at LV-14 (Qi Men)
+- Ascends to throat and neck
+- Meets Ren channel at CV-22 (Tian Tu) and CV-23 (Lian Quan)
+
+**Channel Points:** KI-9, SP-13, SP-15, SP-16, LV-14, CV-22, CV-23
+
+**Master Point:** PC-6  
+**Couple Point:** SP-4
+
+---
+
+## ANATOMICAL INFLUENCE
+- Yin, blood, emotions
+- Chest, Heart, Liver, hypochondrium
+- Shen (spirit/mind)
+- Interior terrain of body
+
+---
+
+## PRIMARY FUNCTIONS
+- Links all Yin channels
+- Governs interior terrain
+- Connects Ren Mai resources to postnatal yin channels
+- Returns yin to origin
+- Mediates emotional body
+- Records life memories
+
+---
+
+## COMMON PHYSICAL CONDITIONS
+
+**Chest & Heart:**
+- Chest pain (including chronic)
+- Heart pain, palpitations
+- Fullness/constriction in hypochondriac region
+- Diaphragm constriction
+- Cardiovascular conditions
+
+**Other Physical:**
+- Lumbar/low back pain (especially with emotional constraint)
+- Upper abdominal pain, stomachache
+- Hypertension
+- Restlessness, dizziness, fainting
+- Vomiting, indigestion, food sensitivities, gas, bloating
+- Bi syndrome with numbness/tingling (blood deficiency related)
+- Fibromyalgia, chronic joint pain
+- Muscle atrophy in lower limbs
+
+---
+
+## PSYCHO-EMOTIONAL CONDITIONS
+
+**Primary Presentations:**
+- Heart pain (most common Yin Wei symptom)
+- Anxiety, fear, hysteria
+- Depression, nightmares
+- Discontent, unfulfilled yearning
+- Shame, guilt, broken-heartedness
+- Obsessive thoughts ("what ifs")
+- Phobias, paranoia (extreme cases)
+- PTSD
+- Restless Organ Syndrome (Zang Zao)
+
+**Root Causes:**
+- Past trauma/disappointment
+- Repressed/suppressed memories
+- Emotional pain consuming blood
+- Inadequate shen nourishment
+- Living inauthentically
+- Gate to inner self closed
+
+**Nine Heart Pains (domains of emotional distress):**
+1. Money/prosperity
+2. Health
+3. Career/vocation
+4. Relationships
+5. Children/creativity
+6. Adventure
+7. Home/belonging
+8. (Unspecified in text)
+9. (Unspecified in text)
+
+---
+
+## MANIFESTATIONS BY ORGAN
+
+**Heart:** Hidden beam (accumulation from umbilicus upward), spitting blood with vexation  
+**Spleen:** Qi or blood stagnation  
+**Lung:** Panting  
+**Kidney:** Panic attacks  
+**Liver:** Fatty deposits
+
+---
+
+## CLINICAL PRESENTATIONS
+
+**Communication Issues:**
+- Difficulty expressing/telling story
+- Throat tension/tightness
+- Plum-pit sensation
+- Unable to speak of trauma
+
+**Aging-Related:**
+- Resistance to aging
+- Anxiety about physical changes
+- Obsession with youthful appearance
+- Extreme measures to avoid aging signs
+
+**Memory/Perception:**
+- Stuck in past memories
+- Inability to be present
+- Reframed/false memories
+- Selective memory
+- Internal reality misaligned with past
+
+---
+
+## TREATMENT INDICATIONS
+
+**Tonifies:** Yin, blood  
+**Moves:** Blood  
+**Treats:** Interior syndromes, deficiency conditions
+
+**When Functioning Well:**
+- Contentment with self
+- Manages life transitions with ease
+- Learns from disappointments
+- Present-focused
+- Fulfills life's destiny
+
+**When Pathological:**
+- Stuck in past
+- Obsessive about events
+- Discontented with being
+- Blood consumed by dissatisfaction
+- Stagnation → heart pain
+- Gate to inner self closed
+
+---
+
+## TREATMENT PROTOCOL
+
+**Sequence:** Qiao Mai → Wei Mai → Four Primaries (Chong, Ren, Du, Dai)
+
+**Exception:** May treat Yin Wei first if gate to inner self is closed
+
+**Frequency:** May require 5+ treatments to fully open closed gate
+
+**Requirements:** Both Master Point (PC-6) AND Couple Point (SP-4) needed for full activation
+
+**Support:** Ensure supportive environment for processing deep pathology
+
+**Progression:** Clears outside inward for safe, grounded healing 
+
+#### Yin Wei channel points and functions
+Kidney 9 Zhu Bin Guest House
+* Nature
+	* Yin Wei cleft point
+	* When we are lost and disconnected from others and life, seeing a friend or friendly guest can bring awareness of our deep self, our shen—hence the name “Guest House.”
+* Function
+	* Kidneys house our Jing and the zhi spirit, and are the Water element.
+	* Those qualities reflect the deepest, core aspect of our life.
+	* Zhu Bin allows us to see our own reflection, as if looking into a pool of Water.
+	* It enables us to look at ourselves in a non-judgmental way, to see ourselves clearly, not based on past experiences and conditions.
+	* When included in certain treatments, the influence of Zhu Bin can help a person exert willpower and realize their Yuan nature.
+* Treatment
+	* Tonifies Kidney yin
+	* Zhu Bin can treat emotional conditions from past experiences.
+	* It regulates and moves the Yin Wei channel. 
+	* Treats Shao Yin conditions. Calms the shen.
+	* Treats phlegm misting the Heart, and opens the chest.
+	* Clears the Heart and transforms phlegm; opens the chest
+	* Calms the spirit and opens the mind’s orifices
+	* Regulates the Yin Wei Mai
+	* Regulates qi and alleviates pain
+	* Helps the person break free from the cycle of obsessiveness about the past (trauma, grief), helps to alleviate anxiety, with moxa on the needle.
+
+Spleen 13 Fu She Bowel Abode
+* Nature
+	* Fu She is a space to collect and store our connection to Earth, nourishment, and transformation.
+* Description
+	* Fu She grounds us when the yi is too active and scattered.
+	* It allows one to hold things.
+	* It can assist in holding favorable aspects of the yi: your thoughts.
+	* It can also release the yi from repetitive and obsessive thoughts.
+	* It can move qi, both inward and outward.
+	* Regulates qi and alleviates pain
+	* Helps with assimilation in the midst of chaos experienced in life
+	* Moves stagnation of damp accumulation due to obsessiveness; disperses accumulations
+
+Spleen 15 Da Heng Great Horizontal
+* Nature
+	* Da Heng is at the level of the umbilicus, the center of the body.
+* Description
+	* Da Heng can ground and root someone in their center; the center is the root of our life.
+	* It can quiet the yi, allowing awareness of our shen. From the horizon we can see all the directions in our life, and so choose a clear path to move and interact. 
+	* Da Heng can assist in releasing emotions and thoughts we have held onto for a long time. 
+	* It assists in rooting the yi and calming the ego. 
+	* It can tonify the Spleen and yi. 
+	* It regulates the Large Intestine and Stomach. 
+	* It can strengthen the limbs and assists in sending essence to the limbs.
+	* Tonifies the Spleen and limbs
+	* Regulates qi and benefits the intestines
+	* Resolves dampness
+
+Spleen 16 Fu Ai Abdominal Lament
+* Description
+	* The yi corresponds to our thoughts and thinking. It is the conceptual body that organizes our experiences, based on our life experience. 
+	* Our accumulated life experiences create the way our yi filters and processes our experiences. * When we suffer from overthinking, repetitive thinking, or unfavorable thoughts, they can trigger unfavorable emotions. 
+	* Fu Ai can calm the yi. In this calmness and space, we can reconnect to our spirit and see the situation in a balanced way.
+* Treatment
+	* Fu Ai calms and treats the yi, including repetitive and obsessive thoughts and behavior. 
+	* When one is not properly nourished, Fu Ai assists in reducing unhealthy cravings.
+	* It can regulate the intestines.
+	* Regulates the intestines (treats diarrhea, supports physical and emotional digestion)
+	* Quintessential point for treating sorrow in the context of the Yin Wei Mai; helps assuage remorse
+	with a sense of a person’s own contribution to current circumstances
+
+Liver 14 Qi Men Cycle Gate Gateway of Hope
+* Nature
+	* Liver mu point
+* Description
+	* The Liver is responsible for the smooth flow of qi and emotions. This flow includes lifelong cycles. 
+	* Qi Men assists in resetting and attuning to the cycles of life. The Liver corresponds to the hun, the ethereal spirit and Jue Yin. The Liver is Wood, and its basic nature is to rise and flow upward. 
+	* When a condition is very deep, in the Jue Yin stage it requires a force to move it up and out of the body. 
+	* Qi Men can create a new cycle for a deep condition. It can help move a stagnant pattern.
+	* If you are stuck in past experiences, Qi Men can help release the attachment. 
+	* The energetic properties of the Liver and Cycle Gate can profoundly move one past old, deep, Yuan level conditions. With a new cycle comes new hope for the future.
+* Treatment
+	* Qi Men calms the hun and yi interactions, especially Wood overacting on Earth. 
+	* It calms and roots the hun. Moves and tonifies blood. Promotes the smooth flow of Liver qi.
+	* It adjusts one to cycles of time and rhythms. It synchronizes.
+	* Spreads and regulates Liver qi
+	* Invigorates blood and disperses masses
+	* Harmonizes the Liver and Stomach
+	* Offers a broader sense of perception and understanding of the current moment 
+
+Ren 22 Tian Tu Heavenly Prominence  
+* Nature
+	* Opening to the Heavens
+	* Window of the Sky point. Meeting of the Yin Wei channel.
+* Description
+	* The windpipe is like a chimney of the upper Jiao and relates to Heaven in cosmology of the body. 
+	* The protrusion on either side of Ren 22 explains the alternative name “Celestial Protrusion.” * Tian Tu receives the heavenly treasures from the celestial, the head.
+	* Keeping this point and area open and free flowing permits a smooth flow and communication between Heaven and Humanity.
+* Treatment
+	* Descends Lung qi, resolves phlegm; clears damp, clears heat; treats sudden hoarseness, difficulty swallowing; facilitates and regulates movement of Lung qi, and dry throat. 
+	* Used to treat asthma, acute and chronic cough, acute bronchitis, profuse sputum, goiter, and hiccups.
+	* Descends rebellious Lung qi and alleviates cough and wheezing
+	* Benefits the throat and voice
+	* Addresses plum pit qi and resolves phlegm
+	* Supports the breath and clarifies the voice
+	* Treats heartbreak; helps the person let go; calms the shen
+	• Restores all yin channels
+	• Needles in this point are not to be retained; rather, quickly tonified
+
+*Ren 23 Lian Quan Angular Ridge Spring (Adam’s Apple)
+* Description
+	* Lian Quan increases the ability to express oneself and communicate.
+* Treatment
+	* Dispels interior wind, promotes speech, clears Fire, subdues qi, and resolves phlegm. 
+	* Lian Quan is used for speech conditions resulting from wind-stroke.
+	* Benefits the tongue and speech
+	* Descends rebellious qi and alleviates cough
+	* Addresses plum pit qi and other obstructions such as phlegm
+	* Supports the breath and clarifies the voice
+	* Treats heartbreak; helps the person let go; calms the shen
+	• Restores all yin channels
+	• Needles in this point are not to be retained; rather, quickly tonified
+
+
+Possible Off-Trajectory Points
+
+SPLEEN 8
+	* Spleen 8 is the blood of the Earth; it motivates, tills, and supports the Spleen meridian, so it is useful in addressing issues of fertility, blood disorders, and most types of cancer.
+	* From a spiritual perspective, it provides a level of grounding and centering like no other point on the trajectory and nourishes the spirit of the blood as it makes it way throughout the kingdom of an individual.
+	* When used in the context of the Yin Wei Mai, it is instrumental in mending a broken heart from the deepest levels to the exterior; from the yuan level to the wei level, it heals from the inside out. Its greatest strength is proven when combined with Spleen 15 in the context of the Yin Wei Mai, and it provides healing and support to the individual in most emotional distresses, especially in the recovery of a broken spirit whether the cause originated from a tragic disease, heartbreak, or trauma.
+	* When the Spleen becomes sluggish or distressed, often disharmony manifests as menstrual issues and any irregular patterns in the function of a woman’s uterus, including infertility, as well as fluid and fatty build-up in the body. 
+	* It is also uniquely poised to assist with Kidney qi.
+	* From a mental perspective, it can add flexibility to a rigid or narrow-minded individual whose stubborn nature is an obstacle to their emotional growth and development.
+	* It tills the hardened and barren Earth, nourishing and increasing the flow of blood and qi, and therefore offers a different perspective and experience of receiving sustenance.
+	* In summary, it supports issues of the lower jiao: infertility, urinary issues, pelvic floor prolapses, and fatty tissue or fluid build-up, as common examples. 
+	* It plants new seeds for growing and vitality. It shakes up the Earth element, tills the soil, harmonizes the pulses, and brings a smile to an otherwise barren face.
+
+LIVER 9
+	* Liver 9 is instrumental in addressing issues of fertility, and lower jiao issues in general. 
+	* it is useful for agitation, irritation, and wind conditions.
+	* for a patient who exhibits conditions related to wind in the context of the Yin Wei Mai, this is an excellent choice. 
+	* When the Heart and spirit become disheveled, disorganized, or distressed, wind can kick up in the system and cause tremors, irregular uterine bleeding, abdominal cramping, and cramping in general.
+	* While Liver 9 is a great point for many physical ailments, it is just as useful for emotional and mental issues. 
+	* It helps relieve emotional pain in the same manner as physical pain. 
+	* It is a natural mood stabilizer and disperses anxiousness to eliminate it.
+	* It alleviates the physical and emotional effects one experiences from chronic health diseases, 
+	including responses to chemotherapy. Liver 9 addresses chronic and lingering emotional disturbances such as depression, anxiety, and associated fatigue and stamina deficiencies.
+	* In terms of needle action, Spleen 8 can be thrusted and tonified in the context of the Yin Wei Mai treatment, whereas Liver 9 should either be gently tonified or inserted using an “even technique,” to avoid further irritation.
+ 
 # YIN QIAO MAI — CLINICAL QUICK REFERENCE
 
 ## TRAJECTORY

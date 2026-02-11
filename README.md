@@ -481,6 +481,298 @@ LIVER 9
 - First two points (BL-63, GB-35) are xi-cleft points - significant for "stuckness"
 - Preponderance of Gallbladder points on head pathway
 - Returns to Du Mai indicates connection to source Yang
+
+### Yang Wei channel points and functions
+
+* Bladder 63 Jin Men Metal Gate
+	* Bladder cleft point
+	* Pacifies wind
+	* Moderates acute conditions
+	* Relaxes the sinews
+	* Activates the channel and alleviates pain
+	* Supportive in wei qi issues
+	* Soothes fright/fear, provides sense of calm in the midst of chaos one perceives
+	* Helps resolve an issue from the past that is creating an obstacle in the current circumstances
+	* Can be used with GB35
+* Description
+	* Jin Men is the origin of the Yang Wei channel pathway. It deals with Lung and Metal issues that influence the exterior. The Lungs control the exterior. 
+	* They open to the nose and have a strong relationship to the environment. 
+	* Metal qi flows inward in the Five Phases. 
+	* The energetic properties of the point are turning experiences into the body.
+	* Jin Men is an exterior structure, an entrance or exit. 
+	* Metal is the parent of Water and there is a giving relationship to Water. Metal, the Lungs, and the po bring life experiences deeper into the body to be processed and organized. 
+	* This process contributes to our personality and constitution. This point can guide the processing of experiences deep in the body, or release unfavorable attachments or aspects of our life.
+	* The Du channel represents the aspect of our self that explores the world and brings experiences into the body; the Yang Wei channel and its energetic properties assist in that process. 
+	* The Yang Wei channel influences the experiences we are attached to and cannot let go. 
+	* Treating Jin Men can begin the process of releasing our attachment to them.
+* Treatment
+	* Clears blockages and stagnations. Calms shen. Moves one when stuck in cycles of time. Opens the orifices. It treats pain along the channel. 
+	* Enhances the ability to process our experiences of life. Releases attachments, patterns, and conditioning.
+	
+* Gallbladder 13 Ben Shen Mind Root Spirit Root
+	* Description
+	* Ben Shen means “spirit root.” The Gallbladder and Liver are Yin–Yang pairs and are the Wood element. These two Wood channels connect the feet, which are Earth, and the head, which is Heaven. 
+	* The Liver has an internal pathway to the vertex and influences the brain and the shen. 
+	* The Gallbladder channel flows around the temporal and occipital areas, influencing the brain and the shen.
+	* The Gallbladder is both a Fu organ and a Curious organ. The translation for “Curious organs” could have been “Extraordinary organs.” 
+	* There is a strong connection between the Gallbladder and the Eight Extraordinary Channels. 
+	* The Kidneys have the most points on the Eight Extraordinary Channels, and the Gallbladder has the second most points.
+	* The Gallbladder channel has a strong influence on the brain/Jing-Shen.
+* Treatment
+	* Ben Shen can access the root of an emotional or spiritual condition. Calms the shen. Gathers essence and vital substances to the Sea of Marrow, the brain. Clears the brain. Increases willpower. 
+	* By connecting to the root of our spirit, it can be a source of inspiration by gaining insight to our original nature.
+	* Calms the spirit
+	* Subdues Liver yang
+	* Extinguishes wind, resolves phlegm, and treats epilepsy
+	* Gathers essence to the head; clears the brain
+
+* * Gallbladder 14 Yang Bai Yang White
+	* The Yang Wei Channel
+	* Brings brightness to your life, especially to the Lung po. Yang Bai assists in the connection of Heaven and the po.
+	* Subdues Liver yang
+	* Extinguishes interior wind, benefits the head, and alleviates pain
+	* Brightens the eyes
+
+* Gallbladder 15 Tou Lin Qi Falling Tears  
+* Head Overlooking Tears
+* Description
+	* Tou Lin Qi can assist in releasing imbalances from the Liver and the Gallbladder from the eyes. The Liver and Gallbladder channels open to the eyes and correspond to the hun spirit. 
+	* The Gallbladder channel begins at the outer canthus and is a location to release imbalances from the hun.
+* Treatment
+	* Calms the shen. Balances emotions. 
+	* Yang Wei releases can come out of the eyes in the form of tears (similar to Foot Overlooking Tears, Gallbladder 41). Brightens the eyes.
+	* Subdues Liver yang
+	* Extinguishes interior wind
+	* Benefits the head and alleviates pain
+	* Benefits the nose and eyes
+	* Calms the spirit
+	* Can be combined with GB16 to help a person express themselves
+	* Calms the shen, especially during difficult times
+
+* Gallbladder 16 Mu Chuang Window of Eye
+* Description
+	* The Gallbladder and Liver correspond to the hun spirit, which reflects the collective nature of life. 
+	* Mu Chuang can assist in helping a person perceive the unity of all people and all of life. Mu Chuang assists in connecting to the deep unity and wisdom from our inner eyes, the hun spirit, and the inseparable nature of all of life.
+* Treatment
+	* Benefits the eyes. Expels wind. Subdues Liver yang. Increases insight.
+	* Benefits the eyes
+	* Eliminates wind and alleviates pain
+	* Can be combined with GB15 to help one express oneself
+	* Calms the shen, especially during difficult times
+
+* Gallbladder 17 Zheng Ying Upright Construction  
+* Correct Plan
+* Description
+	* Zheng Ying assists in the Gallbladder’s ability to be decisive in decision making. Based on the insights of the Liver hun, the energetic properties of this point allow us to follow a correct and good plan.
+* Treatment
+	* Subdues Liver Yang. Calms the spirit.
+	* Subdues Liver yang
+	* Resolves phlegm and opens the mind’s orifices
+	* Benefits the head and alleviates pain
+	* Pacifies the Stomach
+
+* Gallbladder 18 Cheng Ling Spirit Receiver Spirit Support
+* Description
+	* Cheng Ling is the receiver of Heaven’s vibrations. Spirit language includes vibration and frequency. 
+	* In qi gong and Nei Dan, the chin is tucked in gently, aligning the crown and Cheng Ling to attune to celestial energies. 
+	* The Shao Yang channel is the filter, the qi field connecting the inner and outer. 
+	* It is a receiver of spiritual insights. It is a conduit of insight.
+* Treatment
+	* Calms shen. Increases vitality or zest for life.
+	* Subdues Liver yang
+	* Calms the spirit and opens the mind’s orifices
+	* Benefits the head and alleviates pain
+	* Benefits the nose and descends Lung qi
+	* Can be combined with GB19 to support a person’s will to live and carry on; helps person remember to
+	be present for other people, reminds one of responsibilities
+	* Treats indecision
+	* Assists the Spleen with head issues (sinus symptoms, nosebleeds, memory loss, neck issues, etc.)
+
+* Gallbladder 19 Nao Kong Brain Hollow  
+* Vastness of the Brain
+* Description
+	* Nao Kong is a portal to Jing-Shen, the brain, and a means to guide a treatment into the Jing-Shen. It is a way to attune to the unlimited nature of our life.
+	* The ancients perceived the relationship between Jing and shen. They understood that each influenced the other. Our actions in life become our constitution and lodge in our Jing. 
+	* The patterns and imprints in our Jing can block our connection to our shen. If we do not cultivate ourselves, we live from our patterns. 
+	* Nei Dan or spiritual cultivation clears the patterns and blockages, revealing our spirit. With practice we become a living expression of our spirit. 
+	* Our spirit infuses into Jing.
+* Treatment
+	* Helps empty the brain. Clears the mind. Guides the treatment to the Sea of Marrow, the brain.
+	* Subdues Liver yang
+	* Clears Gallbladder channel heat
+	* Calms the spirit
+	* Benefits the head and alleviates pain
+	* Pacifies wind and clears the sense organs
+	* Can be combined with GB18 to support a person’s will to live and carry on; helps person remember to
+	be present for other people, reminds one of responsibilities
+	* Treats indecision
+	* Assists the Spleen with head issues (sinus symptoms, nosebleeds, memory loss, neck issues, etc.)
+
+* Gallbladder 20 Feng Chi Wind Pond
+* Description
+	* Wind can mean change. The classic books Su Wen, Ling Shu, and I Ching present change as a fundamental aspect of life. It is essential to understand change to understand health, harmony, and longevity. 
+	* The first chapter in the Su Wen presents cycles of seven and eight years that humans move through, and Chapter 2 includes the four seasons. Understanding change and how to live in harmony with it is the basis of Chinese philosophy and medicine.
+	* The Gallbladder channel is the Wood element, which corresponds to wind and change. When we are rigid, locked, and stagnant, 
+	* we cannot respond effectively to changes in our environment and changes in our life. 
+	* As a point on the Shao Yang channel, Gallbladder 20 can release pathogens that block and cause stagnation in the Shao Yang channel’s energetic properties of turning, twisting, bending, adapting, adjusting, and responding. 
+	* Feng Chi releases pathogens that prevent efficient interaction with change, allowing for healthy decision-making, decisive activity, and the smooth flow of movement in our daily life.
+* Treatment
+	* Calms shen. Tonifies marrow. Nourishes the brain. Clears pathogenic wind. Helps one to adjust to deal with changes in life.
+	* Expels exterior wind and extinguishes internal wind
+	* Subdues Liver yang
+	* Clears heat
+	* Benefits the head and clears the sense organs
+	* Nourishes marrow and clears the brain
+	* Activates the channel and alleviates pain
+	* Treats wind conditions, releases exterior conditions, relaxes rigidity in thinking or rigidity that manifests in the body
+
+* Gallbladder 21 Jian Jing Shoulder Well
+	* Description
+	* The shoulders contain the power to carry on with the work of life. Jian Jing connects to some of the most powerful points on the body, the Jing Well points. These points treat any organ and channel condition, and stimulate the qi of the channel. 
+	* Jian Jing is a way to stimulate these points to stimulate the body. 
+	* The other points in the treatment guide the qi to the organs, channels, and areas to be treated.
+* Treatment
+	* Opens the Jing Well points. This is a major release point for the local muscular and channel systems. It has a powerful downward influence.
+	* Relaxes the sinews
+	* Regulates qi, activates the channel, and alleviates pain
+	* Transforms phlegm and resolves nodules
+	* Benefits the breasts, expedites delivery (by descending qi), and promotes lactation
+	* Descends Lung qi
+
+* Gallbladder 29 Ju Liao Squatting Bone Hole
+	* This is a major release point for the Yang Wei and Yang Qiao channels. 
+	* Both channels meet at Ju Liao, and it can release both channels.
+* Description
+	* Ju Liao is located at the hip bone. Bones are part of the marrow matrix: Jing, marrow, bones, and the brain. 
+	* Imbalances can enter this bone hole and enter into the marrow level. It can access and release old patterns and imbalances.
+* Treatment
+	* Combined with other points on the Yang Wei and other channels, it can release imbalances throughout the body.
+	* Activates the channel and alleviates pain
+	* Benefits the hip joint
+	* Is mostly used for physical symptoms such as back pain or physical rigidity
+	* Treats issues with the hips/gait/posture; loosens hips
+	* Treats damp-heat in the lower jiao
+	* Brings fluidity to metaphoric movement through life as well
+	* Is not commonly used alone
+	* It assists in moving the lower limb. Combining these two points releases the Yang Wei and Yang Qiao channels and their energetic properties. Nao Shu is a major release point. 
+	
+* Gallbladder 35 Yang Jiao Yang Intersection 
+* Yang Convergence
+	* Yang Wei cleft point.
+* Description
+	* The energetic properties of this point helps move one past blockages and stagnations. It is a junction of Yang and can influence Yang correspondences. 
+	* The correspondences include thoughts, movement, activity, and actions. This point, along with other points in a treatment, can release one from the intensity of Yang correspondences of the Yang Wei. 
+	* As a Yang junction, it can also assist in gathering and directing Yang into the body or releasing it.
+	* Yang Wei cleft points are on the legs and deal with movement and the stagnations that may result from imbalances in movement. 
+	* They can include too much movement or activity; they can also include lack of movement in life. 
+	* Cleft points influence difficulties with Shao Yang energetic properties, the relationship between the outer and inner. They assist in allowing us to move through this tension of processing or filtering between the exterior and interior. Smooth processing or flowing allows 	for the free flow in our life.
+* Treatment
+	* Invigorates, clears, and moves the channel. Stops pain. Calms shen. 
+	* Yang comes together here. The three-leg Yang channels meet here. Gathers or releases Yang.
+	* Activates the channel and alleviates pain
+	* Regulates Gallbladder qi and calms the spirit
+	* Helps a person who feels panicked about life’s transitions
+
+* Large Intestine 14 Bi Nao Upper Arm
+	* Removes local obstructions.
+	* Activates the channel and alleviates pain
+	* Regulates qi and resolves phlegm nodules
+	* Brightens the eyes
+
+* San Jiao 13 Nao Hui Upper Arm Convergence
+	* Regulates Shao Yang. 
+	* Clears internal heat.
+	* Regulates qi and transforms phlegm nodules
+	* Activates the channel and alleviates pain
+
+* TRIPLE BURNER 14
+	* Dispels wind-damp
+	* Alleviates pain and benefits the shoulder joint
+	
+* San Jiao 15 Tian Liao Heavenly Crevice
+	* The Yang Qiao and Gallbladder channels meet here.
+* Description
+	* Tian Liao connects Heaven and Earth, qi and bones, shen and Jing. This crevice is a space to receive celestial guidance and draw it into the bone and Jing level. Things can get stored here, and can be released from this point. 
+	* Shao Yang is a hinge and filtering process. When the Shao Yang process is functioning well it can retain what is necessary and release what is not.
+	* Dispels wind-damp
+	* Activates the channel and alleviates pain
+	* Unbinds the chest and regulates qi
+	* Clears heat
+
+* Small Intestine 10 Nao Shu Upper Arm Shu
+	* Nao Shu assists in bringing out pathogens locally and throughout the body. The upper arm allows movement of the upper limb; Ju Liao,
+	* Moves blood and qi through shoulder girdle; benefits the shoulder
+	* Activates the channel and alleviates pain
+	* Is the place where we meet the world; helps in sorting out who is safe/appropriate socially; helps in discerning whether to stay or go with regard to interpersonal relationships
+	* Treats heat in the Heart
+
+* Du 15 Ya Men Mute’s Gate
+* Window to the Sky.
+* Description
+	* “Mute’s Gate” has a dual meaning. When we turn inward to connect to marrow or the Yuan level, there is no need to speak. Chinese philosophy is center-based. 
+	* By turning inward to the center, we connect to our core and enter a deep peace and bliss.
+	* In this deep realization of our Yuan level, there is no need to speak. 
+	* Ya Men has a pathway that flows to the brain. This pathway allows access to influence the brain (Jing-Shen).
+	* Ya Men can also promote our ability to express ourselves verbally. 
+	* Stimulating both the tongue and the brain, it can facilitate expression. Often the inability to communicate is the branch of a root condition. 
+	* Treating the root should be included in the treatment.
+* Treatment
+	* Clears the mind. Restores consciousness. Promotes the flow of Yang qi to the brain. 
+	* Ya Men assists in verbal self-expression.
+
+* Du 16 Feng Fu Wind Palace Wind Mansion
+* Sea of Marrow. Window to the Sky. Ghost point.
+* Description
+	* Feng Fu is a location to influence wind or change. The Du channel is the Sea of Yang, and wind is Yang. The head is Yang, compared to the feet, which are Yin. 
+	* Feng Fu is an entry into the head and the brain. The brain is part of the marrow matrix and is susceptible to becoming rigid and stagnant. 
+	* Feng Fu opens the flow of qi to the brain and crown, and then down the front of the body, following the Ren channel. This is the microcosmic orbit and a major aspect of Nei Dan.
+* Treatment
+	* Feng Fu can release interior or exterior wind, and stimulates the brain. Calms the shen. Benefits the brain. Eliminates wind. Assists in dealing with change, wind, in one’s life. 
+	* Feng Fu assists in releasing old patterns in the marrow and the brain, allowing for a new way to respond to new experiences.
+
+#### Possible Off-Trajectory Points
+* Spleen 19, 20, and 21 
+	* offer similar patterns of relief in cases of thoracic fullness, upper jiao fullness, upper respiratory issues including asthma and bronchitis, and general aches and pains. Consider the spirit of each point to differentiate and select one of these while treating in the context of the Yang Wei Mai.
+
+* SPLEEN 19
+	* Spleen 19 is generally used more for the physical benefits as opposed to emotional, mental, or spiritual. It helps to open the chest cavity for ease of breath, and to descend the qi when it is struggling to properly move through the upper jiao. It is a great point to add if the patient is currently coughing or wheezing or has a cold or virus that is impacting breath.
+
+* SPLEEN 20
+	* Spleen 20 is a better point for the physical if the pulmonary issues are also impacting the back, such as upper back discomfort or pain, or specific pain in the breast. Spleen 19 is more general while Spleen 20 is more specific in terms of signs and symptoms. One way to determine whether to add Spleen 19 or Spleen 20 (and you can always elect to do both) is if the patient is specifically complaining of difficulty breathing with back pain (usually in the flank area of the back) which is often because of chronic coughing. If the patient is not specifically complaining of back discomfort or chronic cough, Spleen 19 is a great point.
+
+* SPLEEN 21
+	* The most beautiful quality of Spleen 21 is that it brings harmony to the entire meridian system, whether the intention is to bring harmony on a physical, emotional, or spiritual level. If the intent is to tend to the patient on the physical level, Spleen 19 and 20 are both excellent points;
+	* however, if the intent is to tend to the patient on a spiritual level, Spleen 21 is a far more appropriate point.
+	* While it obviously offers benefit in opening the chest, allowing for deep breath, assisting with pain in the upper jiao, and regulating qi and blood, Spleen 21 is a great point to add for depression, lethargy, low motivation, and disorganization. Often when people experience a traumatic event, and these types of signs and symptoms occur (including common cold symptoms), they can become disheveled, disorganized, scattered, with feelings of being overwhelmed. 
+	* In these cases, Spleen 21 is the better choice. It is the junction point of all junction points, especially when used in the context of an extraordinary vessel treatment. It is not only a grounding point but a nourishing point, and offers extraordinary support. 
+	* It empowers the individual to feel solid within themselves, well, and connected.
+
+* GALLBLADDER 29 (AND 30)
+	* While these points are mostly used for physical pain and discomfort, they do lend themselves to treating spiritual imbalances as well. 
+	* Pain or discomfort originating from a previous life can be lodged in the hips, and in fact this is common. Certainly, one can have trauma or injury from the present life, but if the person continues to experience pain or discomfort in the hip area after multiple attempts with
+	other treatment approaches, a Yang Wei Mai treatment using both GB29 and GB30 can be helpful in resolving the past-life karma lodged in the hip. 
+	* In this instance, applying a thrusting needle action to the points is appropriate, followed by dispersing action.
+	* Hypothetically, a person has been treated for chronic hip pain and after multiple attempts using various theories, including the eight extraordinary vessels, the patient continues to experience hip pain. Perhaps the pain occurs less frequently or less intensely, but still causes discomfort from time to time or with certain activities. Revisiting the Yang Wei Mai and including GB29 and GB30 allows the past-life trauma enough time to emerge from the cellular level and exit the tissues. 
+	* In this case, it is recommended to apply a thrusting action (for trajectory points only, not for the MP or CP) initially, followed by dispersing and retaining all needles for as long as 40 minutes. This treatment may need to be repeated multiple times, depending on the nature of the pain and the length of time the patient has lived with the issue. 
+	* The practitioner needs to take into account any structural issues that may be present and represented on imaging. For example, if the patient is experiencing bone on bone or other types of structural issues, acupuncture can help with releasing heat (inflammation) and assist the healing process, but the patient may still need some type of surgery to remedy the structural issue.
+	* Some common themes that may indicate the need for pairing these points include difficulty with direction, follow through, or moving forward with projects, personal or professional or both. 
+	* If after several treatments and perhaps even other modalities (e.g., physical therapy, chiropractic work, etc.) the hip pain continues, the indecisiveness gets worse, and other symptoms begin to emerge (eye issues and connective tissue problems are some common adjunct problems), these points are recommended.
+	* From an emotional standpoint, the patient experiences weariness with an underlying sadness (teary or close to tears at any moment—they may cry in private), and their thinking becomes more rigid. In fact, the rigidity can manifest both mentally and physically. 
+	* People who appear stiff physically often have rigid mindsets as well. 
+	* In some cases, this is described as “stubborn” or “unbending.” 
+	* They lose perspective, becoming overly reactionary and argumentative. Underneath, and not spoken of, lie fear, anxiousness, and restlessness. 
+	* A patient may be able to describe the feelings, but not what is causing them.
+	* If the trauma is from a past-life situation, the person will not be able to identify a cause and will become more frustrated; or they may make something up in their mind regarding the  origin, but will not know for sure or believe their own story.
+	* It is difficult for humans to live in the unknown, especially when there is pain with an unknown origin.
+
+* GALLBLADDER 38
+	* Gallbladder 38 is associated more closely with the mental experience, as opposed to the physical. While it shares a common theme with many Gallbladder points (e.g., tightness, rigidity, soreness, pain, vision problems, and so on), it is more about the perspective and emotions of the person. 
+	* The patient will sigh a lot when speaking, have a more negative outlook on life, and seem to have no vision for the future. This is not to be confused with fatalistic thinking, which is associated with the Chong Mai. Rather, in this case there is more a depressive connotation in
+	general, with pain either in the hips, connective tissue (anywhere in the body including fingers and toes), joints, migraines or headaches, low back pain, middle jiao discomfort, and signs of wind as well.
+	* These patients need a ray of sunshine to enter their lives to get back on track, and that ray of sunshine could be a shift in perspective, not necessarily literal sunlight.
+	* They are in a rut or a hole and have lost their ability to navigate out of the rut.
+	* The light at the end of the tunnel, so to speak, has gone, but they have not yet lost hope—they just feel discouraged. 
+	* Opening the Yang Wei Mai and adding in GB38 will shift their perspective, allowing them to see their future once again, make a plan, or decide to alter the course they are seeking. It gives them optimism and reassurance for the future.
  
 # YIN QIAO MAI — CLINICAL QUICK REFERENCE
 

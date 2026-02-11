@@ -1297,3 +1297,396 @@ and manifest that shift, use Yin Qiao Mai + ST4, SP4, CV10)
 Bladder 1 Jing Ming Eye Brightness
 * reflects the eye’s ability to see, both physically and in the sense of insight
 * All channels influence the eyes directly or indirectly, and their qi and condition can be transported to the eyes. “Brightness” can mean the light that reflects the condition of your spirit. * It can mean that your inner eye will be involved in fulfilling your destiny, your quest in life. 
+
+# Yang Qiao Mai
+
+## **Channel Overview**
+- **Master Point:** Bladder 62 (Shen Mai)
+- **Couple Point:** Small Intestine 3
+- **Primary Function:** Governs locomotion, stance, and engagement with external environment
+- **Energetic Role:** Supports Du channel; regulates yang qi distribution to superficial tissues
+
+---
+
+## **Pathway**
+**Origin:** Lateral heel (BL-62) → lateral malleolus (BL-61, BL-59) → lateral leg → lateral thigh → hip (GB-29) → posterior/lateral hypochondrium → posterior axillary fold → shoulder (SI-10, LI-15, LI-16) → neck → face (ST-4, ST-3, ST-1) → inner canthus (BL-1) → forehead → temporal region → brain via GB-20
+
+**Key Intersections:**
+- Meets Yang Wei at GB-29 (hip) and SI-10 (shoulder)
+- Meets Yin Qiao at BL-1
+- Enters brain via GB-20
+
+---
+
+## **Anatomical Areas of Influence**
+- Lateral legs, hips, back
+- Neck, shoulders
+- Head, eyes, brain
+- Three bony cavities: pelvis, ribcage, skull
+
+---
+
+## **Energetic & Psycho-Emotional Functions**
+
+### **Physical Functions:**
+- Maintains upright posture and structural integrity
+- Regulates large muscle groups and joints for movement
+- Controls eversion of foot and lateral leg mobility
+- Provides panoramic vision and eye opening function
+- Manages yang qi supply to superficial tissues
+
+### **Psycho-Emotional Functions:**
+- Governs ability to be present in the moment
+- Regulates engagement with external world
+- Manages appropriate action/reaction responses
+- Controls rebellion vs. withdrawal responses
+- Processes relationship between self and environment
+
+---
+
+## **Pathological Patterns**
+
+### **Excess Yang Qiao:**
+- **Physical:** Tension, armoring in soft tissues, structural resistance
+- **Mental/Emotional:** 
+  - Excessive external focus
+  - Inability to be present
+  - Rebellious actions and activism taken too far
+  - Constant pushing against the world
+  - Feeling overwhelmed by life burdens
+  - Agitation, mania, restlessness
+  - Insomnia (eyes cannot close)
+
+### **Deficient/Constrained Yang Qiao:**
+- Withdrawal response with held tension
+- Reluctance to engage world
+- Fear-based holding patterns
+- Anticipation of pain/attack
+- Depression, chronic fatigue
+- Flaccidity in lateral leg with medial tightness
+
+### **Early Warning Signs:**
+- Joint pain (neck, shoulders, hips, low back, ankles)
+- Rebellious qi: GERD, belching, nausea, vomiting
+- Headaches
+- Allergies
+
+### **Advanced Pathology:**
+- Hypertension, migraines
+- Strokes, seizures, cerebral thrombosis/hemorrhage
+- Hemiplegia
+- Epilepsy (daytime)
+- Violent implosions from held tension
+
+---
+
+## **Common Clinical Conditions**
+
+### **Eye Conditions:**
+- Eyes remain open (cannot close)
+- Redness and pain of inner canthus
+- Vision-related issues
+
+### **Neurological:**
+- Epilepsy (daytime/exterior wind)
+- Seizures
+- Parkinson's disease
+- Hemiplegia (especially post-stroke)
+- Neuropathy
+- Gait disturbances
+
+### **Musculoskeletal:**
+- Chronic pain: neck, back, shoulders, hips, ankles
+- Lateral leg tension with medial flaccidity
+- Wei syndrome (lateral tightness, medial weakness)
+- Spasm of lower limbs
+- Shoulder pain with emotional etiology
+- Lumbar and back pain
+
+### **Head Conditions:**
+- Headaches (yang rising, liver fire, exterior wind, blood stasis)
+- Hypertension
+- Cerebral conditions
+
+### **Other:**
+- Urinary problems (excess conditions)
+- Mental agitation, mania
+- Insomnia
+
+---
+
+## **Treatment Principles**
+
+### **For Excess/Rebellion Pattern:**
+- Free intersections between Yang Wei and Yang Qiao (SI-10, GB-29)
+- Help patient disengage from history/anticipated future
+- Avoid judgment or telling patient to "relax"
+- Support shift toward Yin Qiao introspection
+
+### **For Withdrawal/Constraint Pattern:**
+- Release held tension before implosion
+- Address early warning symptoms
+- Support ability to engage present moment
+
+### **General Approach:**
+- Balance Yin and Yang Qiao for alignment and freedom
+- Treat accumulation in the head
+- Address environmental/emotional stressors
+- Support mind-body connection and presence
+
+---
+
+## **Key Trajectory Points**
+- **BL:** 1, 59, 61, 62
+- **GB:** 3, 20, 29
+- **SI:** 10
+- **LI:** 15, 16
+- **ST:** 1, 3, 4, 9, 12
+- **KI:** 2, 6, 8 (Yin Qiao intersection points)
+
+---
+
+## **Clinical Pearls**
+
+- **Shoulder as meeting point:** Where physical body meets environment; burdens stored here
+- **Vision emphasis:** Upright posture shifts primary sense from smell to vision
+- **Pain as messenger:** Chronic pain indicates inability to be present; spirit seeking balance
+- **Relationship to Yin Qiao:** Yang = external perception/body-mind level; Yin = internal perception/heart-spirit level
+- **Treatment timing:** Address early rebellious qi symptoms to prevent severe implosions
+- **Balance principle:** If aligned, there is freedom; spirit wants to be free
+
+### Yang Qiao channel points and functions
+* Bladder 62 Shen Mai Ninth Channel Extending Vessel
+* Confluent point. Ghost point.
+* Description
+	* The Kidneys and Bladder are Yin–Yang pairs. The Kidneys are the most Yin organs and they house the most Yin substances. 
+	* The Bladder is Tai Yang. It distributes the vital substances in the Kidneys throughout the body. Tai Yang is closely related to the Sea of Yang (the Du channel). Both influence Yang and movement. 
+	* The leg Tai Yang channel can move one on in their life. 
+	* Shen Mai can assist in moving us forward in life. Along with Zhao Hai, Kidney 6, they are the only confluent points on their channels. 
+	* Shen Mai helps maintain our stance. This can be our physical stance and movement, or how we stand up for ourselves in dealing with people. 
+	* Shen Mai can help us extend into the external world, into society, with a good footing and with balance and strength.
+* Treatment
+	* Stimulates and probes the Yang Qiao channel. Removes obstructions from the channel. Enhances movement and agility. Benefits the brain. 
+	* Shen Mai assists in standing up to others in life interactions. It helps one to explore and interact with the external world. Benefits the eyes. Calms shen.
+
+* Bladder 61 Pu Can Subservient Visitor Servant’s Partaking
+* Description
+	* The Kidneys and Bladder comprise the Water channels and organs, and they correspond to the zhi. 
+	* The Kidneys and Heart are Shao Yin pairs, and the Bladder and Small Intestine are Tai Yang channels. Both the Kidneys and Bladder are connected to the Heart shen. 
+	* A quest in our life is to seek our shen and be a living expression of it. The zhi and willpower should serve and follow the way of our Heart shen. 
+	* Pu Can can assist in serving the Heart shen.
+* Treatment
+	* Influences the way one serves in life. Calms the shen, clears the Yang Qiao channel and head.
+		* Relaxes the sinews, activates the channel, and alleviates pain (especially low back and leg pain)
+	* Eliminates damp-heat
+	* Treats wei qi issues
+	* This point is the body’s personal assistant, similar to the relationship between the Lung and Heart (the Lung ministers the Heart), and it will serve the person in whatever way is needed—condensed essence of everything the Bladder channel has to offer (head to toe)
+	* Supports vision and taking action; creates fluid facilitation of the task at hand
+
+
+* Bladder 59 Fu Yang Instep Yang
+* Cleft point
+* Description
+	* Yang Qiao reflects our stance in life. This Water channel and the flowing aspect of Water is influenced by Fu Yang. 
+	* This point assists in moving and getting into the flow of life. 
+	* Fu Yang can help us stand up and move in life with a balanced stance in life activities and interactions.
+* Treatment
+	* Fu Yang clears obstructions in the Yang Qiao channel.
+	* Benefits the lumbar region and legs
+	* Activates the channel and alleviates pain
+	* Invigorates the Yang Qiao Mai
+	* Treats seizure, Bell’s palsy, stroke
+	* Treats compromised autoimmune system (fibromyalgia, Wegener’s disease, Wilson’s disease, leaky gut, chronic fatigue, lupus, Lyme disease)
+	* Pair Yin Qiao Mai with Yang Qiao Mai for immune issues; combine this point with LI4 to release  toxicity
+	* Creates movement forward spiritually in context of patient’s newly found vision
+
+* Gallbladder 29 Ju Liao Squatting Bone Hole
+* Description
+	* Ju Liao is a major release point for the Yang Wei channel. The Yang Qiao also meets here and it releases both channels. 
+	* Ju Liao is located at the hip bone. Bones are part of the marrow matrix: Jing, marrow, bones, and the brain. Imbalances can enter this “bone hole” and enter into the marrow level.
+* Treatment
+	* Ju Liao can access and release old patterns and imbalances. Combined with other points on the Yang Wei and other channels, it can release imbalances throughout the body.
+		* Activates the channel and alleviates pain
+	* Benefits the hip joint; treats issues with the hips/gait/posture 
+	* Is mostly used for physical symptoms such as back pain; add to point combination for physical manifestation of rigidity (Pair Yin Qiao Mai with Yang Qiao Mai + GB20 + GB29)
+	* Brings fluidity to metaphoric movement through life as well and Is not commonly used alone
+	* Treats damp-heat in the lower jiao
+
+* Small Intestine 10 Nao Shu Upper Arm Shu
+* Description
+	* The upper arm allows movement of the upper limb; Ju Liao, Gallbladder 29, assists in moving the lower limb. Both these points release the Yang Wei and Yang Qiao channels and their energetic properties.
+* Treatment
+	* Nao Shu is a major release point, and assists in bringing out pathogens locally and throughout the body.
+
+* Large Intestine 15 Jian Yu Shoulder Bone
+* Jian Yu means “shoulder bone.”
+* Description
+	* Jian Yu is the structure to hold and release stresses of life. The Large Intestine is a Yang channel, its intrinsic function is to empty and release. 
+	* Jian Yu can empty and release stresses and burdens that have accumulated. 
+	* The Large Intestine channel flows to Da Zhui, Du 14. Jian Yu assists in Da Zhui’s ability to raise Yang.
+* Treatment
+	* Jian Yu affects how one can move, both physically and emotionally. Clears stagnations in the Yang Qiao channel.
+		* Dispels wind-damp, alleviates pain, and benefits the shoulder joint
+	* Eliminates wind and regulates qi and blood
+	* Regulates qi, resolves phlegm, and dissipates nodules
+	* Treats bowel symptoms and vomiting
+
+* Large Intestine 16 Ju Gu Great Bone
+* Description
+	* Ju Gu influences the scapula, acromion, and clavicle bones (the bones around the shoulder).
+* Treatment
+	* Can release pathogens lodged in the bones around the shoulder. It has a strong influence on structure, posture, and stance, and how we move in life. Clears stagnations in the Yang Qiao channel.
+	* Activates the channel, alleviates pain, and benefits the shoulder joint
+	* Regulates qi and blood and dissipates nodules
+	* Treats bowel symptoms and vomiting
+	* Pair with GB20 for wind conditions
+
+* Gallbladder 20 Feng Chi Wind Pool
+	* The San Jiao pathway crosses here.
+* Description
+	* Wind can mean change. Understanding change and how to live in harmony with it, is the basis of Chinese philosophy and medicine. 
+	* The Gallbladder channel is the Wood element, which corresponds to wind and change. When we are rigid, locked, and stagnant, we cannot respond effectively to changes in our environment and changes in our life.
+	* As a point on the Shao Yang channel, Feng Chi can release pathogens that block and stagnate the Shao Yang channel’s energetic properties of turning, twisting, bending, adapting, adjusting, and responding.
+* Treatment
+	* Feng Chi releases pathogens that prevent effective interaction with change, which is necessary for healthy decision-making, decisive activity, and the smooth flow of movement in our daily life.
+	* Calms shen. Tonifies marrow. Nourishes the brain. Clears pathogenic wind. Helps one adjust to deal with changes in life.
+		* Expels exterior wind and extinguishes internal wind
+	* Subdues Liver yang
+	* Clears heat
+	* Benefits the head and clears the sense organs
+	* Nourishes marrow and clears the brain
+	* Activates the channel and alleviates pain
+	* Treats wind conditions, releases exterior conditions, relaxes rigidity in thinking or rigidity that manifests in the body (when the rigidity has manifested into physical symptoms of stiffness, pair Yin Qiao Mai with Yang Qiao Mai + GB20 (disperse); if rigidity exists in the mind only, use Yin Qiao Mai along with GB34)
+
+* Stomach 4 Di Cang Earth Granary
+* Description
+	* Di Cang is the location for postnatal substances to begin the transformation into usable substances for the body. When the yi is imbalanced, it influences our relationship to food and eating. 
+	* Imbalances of the Yang Qiao can include a lack of nourishment and influence our eating habits.
+* Treatment
+	* Di Cang can assist in releasing imbalances in eating patterns from a lack of nourishment manifesting in the Yang Qiao channel. 
+	* Di Cang assists in digesting postnatal influences.
+	* Expels wind from the face; treats acne
+	* Activates the channel and alleviates pain
+	* Treats eating disorders, addresses metabolism problems (in cases of unhealthy relationship with food, to help the person lose weight by identifying the issue and understanding how to make changes and manifest that shift, use Yin Qiao Mai + ST4, SP4, CV10)
+	* Assists with judgment
+	* Assists in the movement of vision (physiologically, metaphorically)
+	* Supports the ability to see clearly what lies ahead and digest what is seen
+	* Opens structure so a person is able to receive, discern, and appropriately disseminate the information
+	* Is great for someone who has a difficult time with discernment, which can create boundary issues 
+
+* Stomach 3 Ju Liao Great Bone Hole
+* Description
+	* Ju Liao connects the yi and po, the mouth and the nose. With each breath, life force mixes with the yi, the Stomach, and po energetic properties. 
+	* When the yi is overactive, when our thoughts are racing and repetitive, it is with soft, gentle, and deep breathing that the yi can be brought into the present moment. The breath can calm and root the yi. 
+	* Ju Liao assists in calming the yi and repetitive and obsessive thinking.
+* Treatment
+	* Expels wind. Clears obstructions in the channel. Reduces swellings.
+	* Expels wind, dissipates swelling, and alleviates pain
+	* Assists in regulating temperature, treats allergies; coupled with Kidney points, helps with inappropriate sweating
+	* Assists with judgment
+	* Assists in the movement of vision (physiologically, metaphorically)
+	* Supports the ability to see clearly what lies ahead and digest what is seen 
+	* Opens structure so a person is able to receive, discern, and appropriately disseminate the information
+	* Is great for someone who has a difficult time with discernment, which can create boundary issues
+
+* Stomach 2 Si Bai Four Whites
+* Description
+	* White corresponds to the Metal element, and the Lungs and Large Intestine. 
+	* Si Bai can influence the Large Intestine and Stomach channels. 
+	* Located in the foramen, Si Bai is a space that can contain the tears and imbalances of the spirit. It can also guide out the imbalanced energy.
+
+* Stomach 1 Cheng Qi Containing Tears
+* Description
+	* The eyes are the mirrors of the spirit. The Liver opens to the eyes; the Gallbladder, Bladder, and San Jiao channels all begin near the eye; the Heart flows to the tissues surrounding the eyes. 
+	* The Large Intestine is the origin of the Stomach channel, and these two Yang Ming channels connect to the eyes. 
+	* Life influences are contained in our channels and organs, and they flow to the eyes. 
+	* Cheng Qi can help to release the stresses influencing our life.
+* Treatment
+	* Cheng Qi assists in releasing emotions and stresses; they can come out of the eyes in tears.
+		* Brightens the eyes and stops lacrimation
+	* Expels wind and clears heat
+	* Assists with judgment
+	* Assists in the movement of vision (physiologically, metaphorically)
+	* Supports the ability to see clearly what lies ahead and digest what is seen
+	* Opens structure so a person is able to receive, discern, and appropriately disseminate the information
+	* Is great for someone who has a difficult time with discernment, which can create boundary issues
+
+* Bladder 1 Jing Ming Eye Brightness Eye’s Clarity
+* Description
+	* Jing Ming reflects the eye’s ability to see, both physically and in the sense of insight. 
+	* All channels influence the eyes directly or indirectly, and their qi and condition can be transported to the eyes. 
+	* “Brightness” can mean the light that reflects the condition of your spirit. It can mean that your inner eye will be involved in fulfilling your destiny, your quest in life. 
+	* The Bladder is the partner of the Kidneys and the zhi. Our will to fulfill our destiny can be perceived in the eyes. In Nei Dan, the inner eye plays an essential role in the cultivation process.
+* Treatment
+	* Influences sleeping. Allows one to see life with clarity. Clears pathogenic factors influencing the eyes. It has a strong relationship to the Qiao channels.
+	* Brightens the eye
+	* Expels wind and clears heat; stops itching
+	* Neurological issues, specifically stimulates the pituitary gland
+	* Facilitates vision—big-picture perspective
+
+Possible Off-Trajectory Points
+Spleen 4
+Gallbladder 34 and 39
+Conception Vessel 10
+SPLEEN 4
+* Tonifies the Spleen and harmonizes the middle jiao
+* Regulates the intestines
+* Stops bleeding and regulates menstruation
+* Regulates qi and resolves dampness
+* Calms the spirit and opens the mind’s orifices
+* Benefits the Heart and chest
+* Regulates the Chong Mai
+* Benefits the feet and toes
+* Treats eating disorders, addresses metabolism
+problems (in cases of unhealthy relationship with
+food, to help the person lose weight by identifying
+the issue and understanding how to make changes
+and manifest that shift, use Yin Qiao Mai + ST4,
+SP4, CV10)
+GALLBLADDER 34
+* Benefits the sinews and joints
+* Activates the channel and alleviates pain
+* Spreads Liver qi and benefits the lateral costal
+region
+* Clears Liver and Gallbladder damp-heat
+* Harmonizes Shao Yang
+* Treats wind conditions and releases exterior
+conditions
+* Relaxes rigidity in thinking or rigidity that manifests
+in the body (when the rigidity has manifested into
+physical symptoms of stiffness, pair Yin Qiao Mai
+with Yang Qiao Mai + GB20 (disperse); if rigidity
+exists in the mind only, use Yin Qiao Mai with GB34)
+
+* GALLBLADDER 39
+	* Benefits the sinews, bones, and marrow
+	* Benefits the neck
+	* Expels wind, dispels wind-damp
+	* Clears Gallbladder fire and subdues Liver yang
+	* Activates the channel and alleviates pain (treats low
+	back pain)
+	* Treats rigidity in the pelvic cavity or lower
+	extremities
+	* Loosens stiffness on the mental/physical level
+	* Treats autoimmune issues (great for treating
+	multiple sclerosis)
+	* Pairs well with GB29
+	* Regulates the Gall Bladder channel
+	* Extinguishes Liver Wind
+	* Clears Heat
+	* Helps to strengthen the bones
+	* Transforms Damp-Heat
+	* Benefits the ears
+	* Helps to drain excess qi from the upper part of the body
+	* In conjunction with the Liver channel, helps to facilitate flow of qi in the lower limbs
+
+* CONCEPTION VESSEL 10
+	* Harmonizes the Stomach and regulates qi
+	* Resolves food stagnation
+	* Treats eating disorders, addresses metabolism problems (in cases of unhealthy relationship with
+food, to help the person lose weight by identifying the issue and understanding how to make changes
+and manifest that shift, use Yin Qiao Mai + ST4, SP4, CV10
+	* Moves blood and qi through shoulder girdle; benefits the shoulder
+	* Activates the channel and alleviates pain
+	* Is the place where we meet the world; helps in sorting out who is safe/appropriate socially; helps in discerning whether to stay or go with regard to interpersonal relationships 
+	* Treats heat in the Heart

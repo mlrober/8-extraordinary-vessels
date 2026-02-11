@@ -302,6 +302,185 @@ LIVER 9
 	* It alleviates the physical and emotional effects one experiences from chronic health diseases, 
 	including responses to chemotherapy. Liver 9 addresses chronic and lingering emotional disturbances such as depression, anxiety, and associated fatigue and stamina deficiencies.
 	* In terms of needle action, Spleen 8 can be thrusted and tonified in the context of the Yin Wei Mai treatment, whereas Liver 9 should either be gently tonified or inserted using an “even technique,” to avoid further irritation.
+
+# Yang Wei Mai
+
+## Basic Information
+- **Master Point:** Triple Burner 5 (SJ-5)
+- **Couple Point:** Gallbladder 41 (GB-41)
+- **Xi-Cleft Point:** Gallbladder 35 (GB-35)
+- **Function:** Links all Yang channels; dominates exterior of body
+
+## Pathway/Trajectory
+
+### Main Pathway Points
+- **Origin:** BL-63 (Jin Men) - xi-cleft point of Bladder channel
+- **Lateral malleolus region**
+- **Leg:** GB-35 (xi-cleft of Yang Wei) - ascends lateral leg
+- **Hip:** GB-29 (Ju Liao)
+- **Shoulder region:** LI-14 (Bi Nao), SI-10 (Nao Shu), SJ-14, SJ-15 (Tian Liao)
+- **Shoulder/neck:** GB-21 (Jian Jing)
+- **Neck/head:** GB-20 (Feng Chi)
+- **Head:** GB-13 through GB-19 (Gallbladder points traversing head)
+  - GB-19 (Nao Kong)
+  - GB-18 (Cheng Ling)
+  - GB-17 (Zheng Ying)
+  - GB-16 (Mu Chuang)
+  - GB-15 (Lin Qi)
+  - GB-14 (Yang Bai)
+  - GB-13 (Ben Shen)
+- **Returns to Du Mai:** Du-16 (Feng Fu), Du-15 (Ya Men)
+
+### Anatomical Areas of Influence
+- Lateral aspect of legs
+- Hips
+- Back (postero-lateral costal region)
+- Shoulders
+- Neck
+- Ears
+- Head (especially Shao Yang temporal areas)
+- Brain
+- Exterior of body
+
+## Channels Involved
+- Bladder (Tai Yang)
+- Gallbladder (Shao Yang) - strongest relationship
+- Large Intestine
+- Small Intestine
+- Triple Burner (San Jiao)
+- Du Mai (connects to source Yang)
+
+## Primary Functions
+- Records individual's autobiography in terms of action and major life events
+- Binds interior and exterior of the body (works with Wei Mai system)
+- Regulates optimism on broad scale
+- Last stage of defense before pathogen penetration
+- Releases past experiences, toxicity, and pathogens
+- Assists individual in moving forward in life
+- Links Yang channels to Du Mai for taking action
+
+## Palpation Points for Assessment
+- All trajectory points listed above
+- Look for: pressure pain, tightness, tension, swelling, looseness, puffiness
+- Use thumb pads with gentle then firmer pressure
+
+## Meeting/Correspondence Points Summary
+**Leg:** BL-57, BL-63, GB-29, GB-35  
+**Arm/Shoulder:** LI-14, SI-10, TW-13, TW-15, GB-21  
+**Head/Neck:** GB-13 through GB-21, GV-15, GV-16
+
+## Pathogen Release Mechanisms
+- Fever/chills and sweating
+- Bowel movements
+- Urination
+- Via orifices
+
+## Psycho-Emotional Patterns
+
+### Healthy Yang Wei Mai
+- Appropriate and healthy optimism
+- Ability to gain focus and trust others
+- Appropriate intimate interpersonal relationships
+- Socially accepted and effective behavior
+- Authentic expression of self
+- Ability to make decisions
+- Capacity for healthy conflict resolution
+- Ability to adapt during aging process
+- Refine behavior through life experience
+
+### Yang Wei Mai Pathology
+- Inappropriate obsessiveness about life's work, career, future
+- Inability to make decisions or let go of life events
+- Lack of trust and inaction to resolve conflict
+- Fear of moving forward based on history/experience
+- Fear of conflict leading to avoidance
+- Resistance to change and life transitions
+- Self-sabotaging or self-defeating behavior
+- Immobilization by fear ("freeze" mode)
+- Scattered Yang Qi
+- Judgment and blame toward others
+- Disappointment with life circumstances
+- Lack of direction or momentum
+- Depression
+- Inability to focus or prioritize
+- Chaotic movement lacking purpose
+- Feeling that success is impossible
+- Resistance to aging (Puer/Puella archetype - Peter Pan syndrome)
+
+## Physical Symptoms
+
+### Classic Pathology Signs
+- Chills and fever
+- Aversion to cold or high fevers
+- Difficulty regulating body temperature
+- Forgetfulness and confusion
+- Lack of self-control
+- Swelling and pain in lumbar area
+- Irritability
+
+### Common Physical Conditions Treated
+- Exterior wind invasions
+- Shao Yang disorders
+- Shivering and Bi syndrome
+- Ear problems (especially from exterior attacks, Shao Yang, Liver/GB patterns)
+- Headaches along Gallbladder channel
+- Vertex headaches
+- Back, shoulder, and hip pain
+- Pain along lateral aspect of body
+- Dyspnea with raised shoulders
+- Lumbar pain with swelling
+- Muscle fatigue, pain, and distension in waist
+- Conditions affecting Wei Qi (defensive Qi) circulation
+
+## Clinical Relationships
+
+### Gallbladder-Heart Axis (Liver-Heart Axis)
+- Allows living life from the Heart
+- Awareness of broad perspective in service to destiny
+- Indirectly impacted during Yang Wei Mai treatment
+
+### Shao Yang Connection
+- Strong relationship to Gallbladder and Shao Yang
+- Decision-making about using Du Mai resources
+- Actions to keep moving through time
+
+## Treatment Principles
+
+### Treatment Protocol
+- Treat vessel 3 times consecutively
+- Use trajectory points as necessary
+- Pairing is acceptable practice
+- No need to work with eight principles or five elements when treating Wei/Qiao Mai
+- For primary vessels (Chong, Ren, Du, Dai): include break between treatments
+- After 3 treatments of primary vessel, return to eight principle or five element approach before next vessel
+
+### Treatment Goals
+- Provide opportunity for renewal
+- Access optimism
+- Gain perspective on current and past lives
+- Help with life transitions
+- Release old habits and patterns
+- Assist in moving forward
+- Clear pathogens and toxicity
+- Foster more compassionate process
+
+### Special Applications
+- Terminal illness (cancer, AIDS) - last defense before pathogen penetration
+- End-stage disease - help accepting impending passage
+- Difficulty with life transitions
+- Midlife crisis
+- Aging-related issues
+- Wei Mai treatment gives sense of interconnectedness of lives
+
+## Key Clinical Notes
+- Can address any issue in treatment room
+- Promotes internal alchemy and spiritual development
+- Can be treated alone or prior to four primary extraordinary vessels
+- Represents flexibility and adaptability (Shao Yang) necessary to face change
+- About seeing options and having courage to overcome fears
+- First two points (BL-63, GB-35) are xi-cleft points - significant for "stuckness"
+- Preponderance of Gallbladder points on head pathway
+- Returns to Du Mai indicates connection to source Yang
  
 # YIN QIAO MAI — CLINICAL QUICK REFERENCE
 
